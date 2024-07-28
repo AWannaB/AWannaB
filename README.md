@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AWannaB
+- 👀 I’m interested in coding, water polo, and rubiks cubes (for those who care, my best on a 3x3 is 6.70
+- 🌱 I’m currently learning Python, and might start Java
+- 📫 How to reach me twc.video.9+githubcolab@gmail.com
+- ⚡ Fun fact: I am over the age of 12 and do not have a phone (crazy, I know)
